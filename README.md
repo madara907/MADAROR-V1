@@ -2,6 +2,8 @@
 
 # I AM A BOT BUH DEVELOPED BY WASUKE D KAMADO VII 💨
 
+ # https://i.ibb.co/FLB1dRBc/temp-image.jpg
+
 # PLEASE FORK ME 😓
 
 # M'Y SESSION ID 🫠👇
