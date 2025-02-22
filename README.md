@@ -2,9 +2,12 @@
 
 # I AM A BOT BUH DEVELOPED BY WASUKE D KAMADO VII 💨
 
-  https://i.ibb.co/FLB1dRBc/temp-image.jpg
+<a><img src='https://i.imgur.com/xGHeJ1U.jpeg'/></a>    
+
 
 # PLEASE FORK ME 😓
+
+# https://img.shields.io/badge/Click https://github.com/madara907/MADAROR-V1/edit/main/README.md
 
 # M'Y SESSION ID 🫠👇
 
