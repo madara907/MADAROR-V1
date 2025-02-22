@@ -5,9 +5,7 @@
 <a><img src='https://i.imgur.com/xGHeJ1U.jpeg'/></a>    
 
 
-# PLEASE FORK ME 😓
-
-https://img.shields.io/badge/Click 
+# PLEASE FORK ME 😓 
 
 # M'Y SESSION ID 🫠👇
 
