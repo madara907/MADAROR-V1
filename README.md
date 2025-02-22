@@ -1,9 +1,7 @@
 # MADAROR-V1
 
 # I AM A BOT BUH DEVELOPED BY WASUKE D KAMADO VII 💨
-
 <a><img src='https://i.imgur.com/xGHeJ1U.jpeg'/></a>    
-
 
 # PLEASE FORK ME 😓 
 
