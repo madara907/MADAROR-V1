@@ -7,7 +7,7 @@
 
 # PLEASE FORK ME 😓
 
-# https://img.shields.io/badge/Click https://github.com/madara907/MADAROR-V1/edit/main/README.md
+https://img.shields.io/badge/Click 
 
 # M'Y SESSION ID 🫠👇
 
